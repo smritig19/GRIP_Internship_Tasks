@@ -1,2 +1,2 @@
-# GRIP Internship Tasks
+# GRIP INTERNSHIP TASKS 
 
